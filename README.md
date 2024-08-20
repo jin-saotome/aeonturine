@@ -12,3 +12,7 @@
 <i> ➽──────────────❥  c + h is always welcomed !</i>
 <p></p>
 <p align="right"> <i>check rentry for more info if you'd like ! ︶꒦︶꒷︶︶꒷꒦︶︶︶꒷꒦‧ ₊˚・</i>
+<p> </p>
+   <p>. </p>
+   <p>. </p>
+<i>art cr:renjianshilian0 ( x ) , divider cr:i-macculatus (tumblr)</i>
