@@ -7,11 +7,11 @@
 <p></p>
 <p align="center"> <i> ^ yves , or vasper  ୨♡୧  any pronouns !</i>
   <p></p>
-<b> ^ abro + aroace spec ^ ꒰ ⁐ ⁐ ⁐ ⁐ ୨୧ ⁐ ⁐ ⁐ ⁐ ꒱ </b>
+<p align="center"> <b> ^ abro + aroace spec ^ ꒰ ⁐ ⁐ ⁐ ⁐ ୨୧ ⁐ ⁐ ⁐ ⁐ ꒱ </b>
 <p></p>  
-<i> ➽──────────────❥  c + h is always welcomed !</i>
+<p align="center"> <i> ➽──────────────❥  c + h is always welcomed !</i>
 <p></p>
-<p align="right"> <i>check rentry for more info if you'd like ! ︶꒦︶꒷︶︶꒷꒦︶︶︶꒷꒦‧ ₊˚・</i>
+<p align="center"> <i>check rentry for more info if you'd like ! ︶꒦︶꒷︶︶꒷꒦︶︶︶꒷꒦‧ ₊˚・</i>
 <p> </p>
    <p>. </p>
    <p>. </p>
