@@ -7,7 +7,7 @@
 <p></p>
 <p align="center"> <i> ^ yves , or vasper  ୨♡୧  any pronouns !</i>
   <p></p>
-<p align="center"> <b> ^ abro + aroace spec ^ ꒰ ⁐ ⁐ ⁐ ⁐ ୨୧ ⁐ ⁐ ⁐ ⁐ ꒱ </b>
+<p align="center"> <b> ^ abro + genderfluid ^ ꒰ ⁐ ⁐ ⁐ ⁐ ୨୧ ⁐ ⁐ ⁐ ⁐ ꒱ </b>
 <p></p>  
 <p align="center"> <i> ➽──────────────❥  c + h is always welcomed !</i>
 <p></p>
