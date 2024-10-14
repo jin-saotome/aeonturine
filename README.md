@@ -5,15 +5,3 @@
  <div class="col-md-6 p-1 text-muted my-auto order-2 order-md-1">
     
   <div class="row no-gutters">
-<p></p>
-<p align="center"> <i> ^ yves , or vasper  ୨♡୧  any pronouns !</i>
-  <p></p>
-<p align="center"> <b> ^ abro + genderfluid ^ ꒰ ⁐ ⁐ ⁐ ⁐ ୨୧ ⁐ ⁐ ⁐ ⁐ ꒱ </b>
-<p></p>  
-<p align="center"> <i> ➽──────────────❥  c + h is always welcomed !</i>
-<p></p>
-<p align="center"> <i>check rentry for more info if you'd like ! ︶꒦︶꒷︶︶꒷꒦︶︶︶꒷꒦‧ ₊˚・</i>
-<p> </p>
-   <p>. </p>
-   <p>. </p>
-<i>art cr:renjianshilian0 ( x ) , divider cr:i-macculatus (tumblr)</i>
